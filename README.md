@@ -1,1 +1,1 @@
-An Acoustic Metamaterial-based Participatory Soundscape Design for Creating Pleasant Sound Environment in Urban Areas of London![image](https://github.com/user-attachments/assets/a2846e33-5a6a-4151-b92e-8fa9fa11d109)
+An Acoustic Metamaterial-based Participatory Soundscape Design for Creating Pleasant Sound Environment in Urban Areas of London
